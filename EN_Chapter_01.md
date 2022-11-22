@@ -1,6 +1,6 @@
 # Chapter One
 
-## WAR is a racket. It always has been.
+***WAR is a racket. It always has been.***
 
 It is possibly the oldest, easily the most profitable, surely the most vicious. It is the only one
 international in scope. It is the only one in which the profits are reckoned in dollars and the losses in
@@ -23,7 +23,7 @@ Out of war nations acquire additional territory, if they are victorious. They ju
 acquired territory promptly is exploited by the few -- the selfsame few who wrung dollars out of
 blood in the war. The general public shoulders the bill.
 
-### And what is this bill?
+***And what is this bill?***
 
 This bill renders a horrible accounting. Newly placed gravestones. Mangled bodies. Shattered
 minds. Broken hearts and homes. Economic instability. Depression and all its attendant miseries.
@@ -46,7 +46,7 @@ home to profit.
 There are 40,000,000 men under arms in the world today, and our statesmen and diplomats have the
 temerity to say that war is not in the making.
 
-### Hell's bells! Are these 40,000,000 men being trained to be dancers?
+***Hell's bells! Are these 40,000,000 men being trained to be dancers?***
 
 Not in Italy, to be sure. Premier Mussolini knows what they are being trained for. He, at least, is
 frank enough to speak out. Only the other day, Il Duce in "International Conciliation," the
@@ -89,7 +89,7 @@ But what does it profit the men who are killed? What does it profit their mother
 wives and their sweethearts? What does it profit their children?
 What does it profit anyone except the very few to whom war means huge profits?
 
-### Yes, and what does it profit the nation?
+***Yes, and what does it profit the nation?***
 
 Take our own case. Until 1898 we didn't own a bit of territory outside the mainland of North
 America. At that time our national debt was a little more than $1,000,000,000. Then we became
