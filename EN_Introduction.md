@@ -8,11 +8,11 @@ He fought in many of America's wars and during that time he began to believe tha
 
  "... a high class muscle man for Big Business, for Wall Street and bankers. In short, I was a racketeer, a gangster for capitalism." 
  
-Like most Americans today, he was raised on fairy tales of America's moral purity. In the beginning he did not understand what was really happening, but as he matured he came to understand that the government of the United States of America was controlled by oligarchs that used the US military to force other nations to become vassals of the US government and the business interests and oligarches that controlled it. This is the definition of Fascism according to Bennito Mussolini: Busineses and Oligarchs controlling the government, openly or in secret. 
+Like most Americans today, he was raised on fairy tales of America's moral purity. In the beginning he did not understand what was really happening, but as he matured he came to understand that the government of the United States of America was controlled by oligarchs that used the US military to force other nations to become vassals of the US government and the business interests and oligarches that controlled it. This is the definition of fascism according to Bennito Mussolini: busineses and oligarchs controlling the government, openly or in secret. 
 
-General Butler was a devoted and capable enemy of Fascism. This story has been suppressed by the American Fascists: In 1934 he was approached by a group of Wall Street multimillionaires who offered him a large sum of money. These oligarchs asked him to lead 500,000 soldiers against President Franklin Deleanor Roosevelt and forcibly remove him from office. These oligarches attempted a coup because they did not want to pay their fair share of taxes. General Butler collected information on these men and gave the information to the US Congress -- He honored his Oath to the US Constitution and crushed the coup attempt by his actions.
+General Butler was a devoted and capable enemy of Fascism. This story has been suppressed by the American Fascists: In 1934 he was approached by a group of Wall Street oligarchs who offered him a large sum of money. These oligarchs asked him to lead 500,000 soldiers against President Franklin Deleanor Roosevelt and forcibly remove him from office. These oligarchs attempted a coup because they did not want to pay their fair share of taxes. General Butler collected information on these men and gave the information to the US Congress -- He honored his Oath to the US Constitution and crushed the coup attempt by his actions.
 
-General Butler was awarded Two Congressional Medals of Honor:
+General Butler was awarded two Congressional Medals of Honor:
 
 -   The first was in 1914 for his actions during the capture of Vera Cruz, Mexico.
 -   The second was in 1917 for his actions during the capture of Ft. Riviere, Haiti.
