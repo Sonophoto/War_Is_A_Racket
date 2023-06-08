@@ -33,4 +33,4 @@ The text of this document is declared to be in the Public Domain and has been pr
 
 Glory to the Heroes of all of our peoples, May peace be on their souls -- May God yet bless us all with ***Peace on Earth, Good Will Towards Mankind***
 
-**November 2022**
+**June 2022**
